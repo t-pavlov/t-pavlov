@@ -1,5 +1,5 @@
 # 💫 About Me:
-> Curious mind | Cybersecurity enthusiast <br><br>🌱 Starting my journey into 🔒**Cybersecurity**<br>🔭 Learning something new about technology  <br>🌐 Exploring the amazing world of tech<br><br>🎮 Playing *World of Warcraft*  <br>
+> Curious mind | Cybersecurity enthusiast <br><br>🌱 Starting my journey into 🔒**Cybersecurity**<br>🔭 Learning something new about technology  <br>🌐 Exploring the amazing world of tech<br>
 
 
 ## 🌐 Socials:
